@@ -6,4 +6,4 @@
 
 💞️ I’m looking to collaborate on nothing for now.
 
-📫 How to reach me : Bhuiyanareeb@gmial.com
+📫 How to reach me : Bhuiyannareeb@gmail.com
